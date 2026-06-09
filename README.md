@@ -1,5 +1,5 @@
 ![](https://i.postimg.cc/8P4q39D7/913558.jpg)
-<h1 align="center">Hi 👋, I'm Milagros</h1>
+<h1 align="center">I'm Milagros</h1>
 <h3 align="center">ෂ</h3>
 
 <h3 align="left">Connect with me:</h3>
